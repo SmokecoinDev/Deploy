@@ -39,4 +39,4 @@ hard as possible, keep abreast of our latest news from social media and
 also the newspapers that we will announce<br />
 <br /> 
 <br />
-<a href="http://smokecoin.tect/" target="_blank">http://smokecoin.tect/</a></b><br />
+<a href="http://smokecoin.tech/" target="_blank">http://smokecoin.tech/</a></b><br />
